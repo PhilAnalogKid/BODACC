@@ -48,6 +48,6 @@ la photographie, realité augmentée ou virtuelle, enfin toutes ces nouvelles te
 Merci pour votre lecture !
 
 Salutations
-#PhilHeavyRock
+Philippe 
 
 	
